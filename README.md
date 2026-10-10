@@ -10,7 +10,7 @@
 | nibeizhewoyouqitaxiaomaolema.jpg | 你背着我有其他小猫了吗 | 吃醋、质问、占有欲发作 |
 | qinzui.jpg | 亲嘴 | 想亲亲、撒娇、表达爱意 |
 | qinzuiba.jpg | 亲嘴吧 | 求亲亲、主动出击 |
-| shjngxianlepaowo.jpg | 上线了跑我 | 我上线了快来陪我、求关注 |
+| shjngxianlepaowo.jpg | 上线了泡我 | 我上线了快来陪我、求关注 |
 | touzhitouzhi.jpg | 偷之偷之 | 偷菜、偷东西、偷表情包 |
 | weishenmeyitiandoubuzhaowo.jpg | 为什么一天都不找我 | 被冷落了、想被关注 |
 | woshengqilenizuihaokanchulaile.jpg | 我生气了你最好看出来了 | 生气、警告、要哄 |
